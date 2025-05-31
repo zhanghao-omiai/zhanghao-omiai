@@ -76,3 +76,7 @@
 👉《电报刷粉》《海外app刷粉》《国内APP刷粉》网址：https://shuafan.cc/
 
 👩🏻商城卖家✈️在线客服： https://t.me/hwdb8999
+
+参考omiai购买账号文章：
+
+<img src="pic/bbb.png" alt="omiai购买账号omiai注册账号" border="0">
